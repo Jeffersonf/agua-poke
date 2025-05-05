@@ -1,2 +1,0 @@
-# pxg_grama
-youtube
